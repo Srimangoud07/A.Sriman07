@@ -1,3 +1,3 @@
 # A.Sriman07
 this is situated hyderabad
-GANDE MANI
+AND GANDE MANI
